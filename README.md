@@ -3,8 +3,8 @@
 **Software Engineer | Full-Stack Developer | Data & Software Sciences Student at ENSIAS**
 
 📍 Rabat, Morocco  
-✉️ souadbouzgaou@outlook.fr | 📞 +212 762374772  
-🔗 [LinkedIn](https://www.linkedin.com/in/souadbouzgaou) | [GitHub](https://github.com/souadbouzgaou)
+✉️ souadbouzgaou@outlook.fr 
+🔗 [LinkedIn](https://www.linkedin.com/in/souadbouzgaou) 
 
 ---
 
